@@ -9,6 +9,7 @@ Untuk Mengaktifkan Windows 11
 
 ![image](https://github.com/Hendro10/Aktivator-Windows-11/assets/112385556/eda20060-a65d-4a23-92d8-6c1c9242b3f1)
 
+![Proses Aktivasi Selesai](https://github.com/Hendro10/Aktivator-Windows-11/assets/112385556/6aaa3a16-9214-43d1-b89b-626521ab1f24)
 
-
+Terima Kasih
 
