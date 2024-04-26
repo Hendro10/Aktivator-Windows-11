@@ -7,7 +7,8 @@ Untuk Mengaktifkan Windows 11
 
 ![image](https://github.com/Hendro10/Aktivator-Windows-11/assets/112385556/30a5b095-f965-4fec-b83f-2b94253cb3db)
 
-![image](https://github.com/Hendro10/Aktivator-Windows-11/assets/112385556/c8504c2e-a5de-4966-8b99-53bdf9968ce1)
+![image](https://github.com/Hendro10/Aktivator-Windows-11/assets/112385556/eda20060-a65d-4a23-92d8-6c1c9242b3f1)
+
 
 
 
